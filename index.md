@@ -1,4 +1,4 @@
-# My freedom room
+# Freedom room
 
 ### This is my freedom room where I want to be alone and feel relax.
 Music is one of my relaxation and I have put some of the music that I always play everyday. I hope you will like it.
