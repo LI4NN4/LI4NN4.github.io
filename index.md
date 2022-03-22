@@ -2,15 +2,17 @@
 
 ## This is my freedom room where I want to be alone and feel relax. I always like musics so here is it. I hope you will like it.
 
-[All I want by Olivia Rodrigo](<iframe width="560" height="315" src="https://www.youtube.com/embed/OOgvDiXl6hA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[All I want by Olivia Rodrigo](https://www.youtube.com/watch?v=OOgvDiXl6hA&list=RDMM&index=1)
 
-[Encahanted by Taylor Swift](<iframe width="560" height="315" src="https://www.youtube.com/embed/EFllKEx9_aE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[Encahanted by Taylor Swift](https://www.youtube.com/watch?v=dVArBYmSDLQ&list=RDMM&index=2)
 
-[13 by Lany](<iframe width="560" height="315" src="https://www.youtube.com/embed/_yHYqGKtCzk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[13 by Lany](https://www.youtube.com/watch?v=_yHYqGKtCzk)
 
-[Deja Vu by Olivia Rodrigo](<iframe width="560" height="315" src="https://www.youtube.com/embed/Qn3nbEYTHYc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[Deja Vu by Olivia Rodrigo](https://www.youtube.com/watch?v=3rsB8m2QgzE&list=RDMM&index=1)
 
-[Tabun Yoasobi](<iframe width="560" height="315" src="https://www.youtube.com/embed/3rsB8m2QgzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[Tabun Yoasobi](https://www.youtube.com/watch?v=3rsB8m2QgzE&list=RDMM&index=1)
+
+[Favorite Crime by Olivia Rodrigo](https://www.youtube.com/watch?v=D5AXAZnvYbo&list=RDMM&index=4)
 
 
 ## I also want to share my favorites anime image.
